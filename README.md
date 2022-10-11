@@ -1,6 +1,6 @@
-- 👋 Hi, I'm ChiyuanMei, AKA BobO-ca1cAi
+- 👋 Hi, I'm ChiyuanMei, AKA suzhouNo1.Jett
 - 👀 I'm now fan of caicaizi who is a gorgeous live-streamer
-- 🌱 I'm currently learning personal-web-build
+- 🌱 I'm currently learning aidrawing-local-building
 - 💞️ I'm NOT looking to collaborate
 - 📫 FORGET to reach me
 
